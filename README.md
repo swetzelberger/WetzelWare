@@ -1,2 +1,2 @@
 # WetzelWare
-WetzelWare is a new consulting company. 
+WetzelWare is an established consulting company. 
